@@ -1,1 +1,2 @@
 Monica Scoletti
+scolettm@oregonstate.edu
